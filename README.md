@@ -1,0 +1,2 @@
+# Barbeara-do-Martins
+*
